@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JbOlivete
-- 👀 I’m interested in making fun projects that can share.
+- 👀 I’m interested in making projects that are fun and can be shared.
 - 🌱 I’m currently learning at Odinn Course
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
