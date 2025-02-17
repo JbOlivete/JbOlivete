@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JbOlivete
-- 👀 I’m interested in Psychology
+- 👀 I’m interested in making fun projects that can share.
 - 🌱 I’m currently learning at Odinn Course
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
